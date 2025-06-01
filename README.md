@@ -7,3 +7,4 @@ percobaan terakhir ges
 sekali lagi ternyata hehe
 sudah ketemu issuenya :D
 tapi kok masih salah ya?
+nah, ini pasti bener ges
